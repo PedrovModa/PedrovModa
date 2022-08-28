@@ -1,4 +1,4 @@
-### Olá! Seja muito bem vindo ao meu perfil! 👋
+### Olá! Eu sou o Pedro Moda! 👋
 
 - 🚀 Apaixonado por tecnologia e área de dados
 - 🎓 Estudante de Ciência de Dados - UNIVESP
